@@ -1,1 +1,1 @@
-# MyGameCopy6
+# MY-OWN-GAME
